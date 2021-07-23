@@ -4,7 +4,7 @@
 ![](https://i.imgur.com/Y2Ot8vK.jpg)
 
 # [tranquil sublimity Kala edit HD V1.1](https://drive.google.com/file/d/16dKNOeb-pbw6TA8rNOGYwF_LftwGwsCg/view?usp=sharing)
-element {
+@element {
   font-size: 75;
 }
 I use this skin with the following mods and mod combinations: EZ, EZHD, FLHD.
