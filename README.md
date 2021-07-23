@@ -5,7 +5,7 @@
 
 # [tranquil sublimity Kala edit HD V1.1](https://drive.google.com/file/d/16dKNOeb-pbw6TA8rNOGYwF_LftwGwsCg/view?usp=sharing)
 
-<font size="50">I use this skin with the following mods and mod combinations: EZ, EZHD, FLHD.</font>
+### I use this skin with the following mods and mod combinations: EZ, EZHD, FLHD.
 
 ![](https://i.imgur.com/WYtUXxd.jpg)
 
