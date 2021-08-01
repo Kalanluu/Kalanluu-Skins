@@ -12,4 +12,4 @@
 ![](https://i.imgur.com/oMkXr43.jpg)
 # [tranquil sublimity Kala edit FLHD V1.2](https://drive.google.com/file/d/1AqjES4t3PGeAKwIRJMvuC7CBfW_HVz1s/view?usp=sharing)
 ### FL skin but different
-![](https://i.imgur.com/DjFv4ID.jpg)
+![](https://i.imgur.com/aqFyvgK.jpg)
