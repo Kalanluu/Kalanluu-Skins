@@ -4,7 +4,7 @@
 ### EZ/EZHD skin, also good for low ar in general.
 ![](https://i.imgur.com/YzBk5JW.jpg)
 
-# [tranquil sublimity Kala edit NOMOD V1.2](https://drive.google.com/file/d/11z8E46ThhH48nhQQlLBBJIFtFpyJtlBT/view?usp=sharing)
+# [tranquil sublimity Kala edit NOMOD V1.2](https://drive.google.com/file/d/16L30LAC6oZqoC89pby2EFkd_lHH3yHt2/view?usp=sharing)
 ### Used mostly for ar8< hd or no hd.
 ![](https://i.imgur.com/Y2Ot8vK.jpg)
 # [tranquil sublimity Kala edit FL V1.2](https://drive.google.com/file/d/11z8E46ThhH48nhQQlLBBJIFtFpyJtlBT/view?usp=sharing)
