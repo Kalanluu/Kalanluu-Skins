@@ -1,8 +1,8 @@
 # Kalanluu-osu!-Skins
-# [tranquil sublimity Kala edit FL&EZ V1.4](https://drive.google.com/file/d/1j3vO01x_7prcFyysNpK116qpA_Ph4Rea/view?usp=sharing)
+# [tranquil sublimity Kala edit FL&EZ V1.4](https://drive.google.com/file/d/1ULHyL3DZXItHPOxS1_ytXSE8N7x75xO3/view?usp=sharing)
 ### Big follow lines.
 ![](https://i.imgur.com/4z6gEZ3.jpeg)
-# [tranquil sublimity Kala edit V1.4](https://drive.google.com/file/d/1ULHyL3DZXItHPOxS1_ytXSE8N7x75xO3/view?usp=sharing)
+# [tranquil sublimity Kala edit V1.4](https://drive.google.com/file/d/1j3vO01x_7prcFyysNpK116qpA_Ph4Rea/view?usp=sharing)
 ### Small follow lines.
 ![](https://i.imgur.com/x4LChf5.jpg)
 
